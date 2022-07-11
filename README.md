@@ -1,1 +1,1 @@
-# index.eda
+https://drozdovskiii.github.io/index.eda/
